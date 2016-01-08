@@ -1,0 +1,8 @@
+excerpt_separator: ""
+pygments: true
+markdown: kramdown
+url: http://leathercraft.github.io
+title: Leather Craft
+tagline: A log of everyday life
+description: My awesome new site
+paginate: 10
