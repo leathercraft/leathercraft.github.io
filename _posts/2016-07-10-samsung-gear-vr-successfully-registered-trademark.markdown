@@ -1,0 +1,6 @@
+---
+published: true
+title: Samsung Gear VR successfully registered trademark
+layout: post
+---
+According to foreign media reports, Gear VR brand has in recent days by the United States Patent and Trademark Office trademark registration certification, which means it could be introduced in the near future a virtual reality products. Already know the information from the current Samsung Gear VR will match the OLED screen, you can connect with many Samsung Android system phone and tablet. [Hermes iPhone 6 Plus cover](http://www.awacase.com/hermes-iphone-6-plus-leather-case-rose-p-4858.html) [Hermes iPhone 6 plus wallet case](http://www.scmp.com/business/article/1913766/hermes-relocating-princes-building-amid-talk-it-plans-sell-flagship-store)[![Alt Hermes iPhone 6 Plus cover](http://www.awacase.com/images/large/i6plus/hermes_case_i6p2003_lrg.jpg)](http://www.awacase.com/hermes-iphone-6-plus-leather-case-rose-p-4858.html) [https://www.youtube.com/watch?v=-_KufIvnIiA](https://www.youtube.com/watch?v=-_KufIvnIiA)
