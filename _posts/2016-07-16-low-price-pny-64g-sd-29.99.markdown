@@ -1,0 +1,6 @@
+---
+published: true
+title: Low price: PNY 64G SD $29.99
+layout: post
+---
+![Alt Low price: PNY 64G SD $29.99](https://c1.staticflickr.com/9/8856/28274558661_87ed15a062_b.jpg)From United States of PNY memory card users, although no other big names in the country, but the performance is still pretty powerful. This PNY Elite Performance 64GB SD for the C10 and UHS-1, can 60MB/s the write speed, read 90MB/s, should be enough to force. [Disney iPhone 6 Plus Case](http://www.nodcase.com/disney-leather-flip-wallet-case-for-iphone-6-plus-p-4509.html)PNY Elite Performance 64GB SD record low price of $ 29.99, about 180 yuan, domestic seems to 300+-450 Yuan, the price advantage is obvious, for make up or buy more.Purchase address [Disney case](https://medium.com/@fendicase/be-bear-children-mobbing-robots-do-24cff0118618#.o8upynz9c)[![Alt Disney iPhone 6 Plus Case](http://www.nodcase.com/images/large/i6plus/disney_case_i6p611_lrg.jpg)](http://www.nodcase.com/disney-leather-flip-wallet-case-for-iphone-6-plus-p-4509.html) [https://www.youtube.com/watch?v=TKLhBiBh7-c](https://www.youtube.com/watch?v=TKLhBiBh7-c)
